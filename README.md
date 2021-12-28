@@ -1,2 +1,8 @@
 # tema2-af
-[Marmelada](https://www.infoarena.ro/job_detail/2823364)
+Profil infoarena
+
+[](https://www.infoarena.ro/utilizator/vali_27)
+
+Solutii infoarena
+
+[Marmelada 100 pct](https://www.infoarena.ro/job_detail/2823364)
