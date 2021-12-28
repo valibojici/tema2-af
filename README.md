@@ -1,7 +1,7 @@
 # tema2-af
 Profil infoarena
 
-[](https://www.infoarena.ro/utilizator/vali_27)
+[Link](https://www.infoarena.ro/utilizator/vali_27)
 
 Solutii infoarena
 
